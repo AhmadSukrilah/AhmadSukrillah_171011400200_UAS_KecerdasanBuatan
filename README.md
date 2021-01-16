@@ -1,0 +1,1 @@
+# AhmadSukrillah_171011400200_UAS_KecerdasanBuatan
